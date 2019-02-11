@@ -1,3 +1,0 @@
-Ashe
-Yasuo
-Reaper
