@@ -1,4 +1,3 @@
-- Ashe
-- Yasuo > Sion
-- Reaper
-- DVA
+Ashe
+Yasuo
+Reaper
