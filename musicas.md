@@ -1,3 +1,0 @@
-- RISE (ft. The Glitch Mob, Mako, and The Word Alive) | Worlds 2018
-- Nanatsu no Taizai: Imashime no Fukkatsu
-- Netsujou no Spectrum
